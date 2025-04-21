@@ -1,4 +1,4 @@
-## Hi there 👋 I'm Katie! I use she/her pronouns and I'm on Eastern Time!
+## Hi there 👋 I'm Katie! I use she/her pronouns and I'm on Eastern Time.
 
 ⚡ Currently working on: user interviews and an office-wide mixed-methods quality improvement assessment
 
